@@ -59,6 +59,6 @@ This policy may be updated from time to time. Any changes will be posted here.
 
 Contact Us  
 If you have any questions, contact us at:  
-sdcombany@gmail.com  
+salahwork40@gmail.com  
 
 📌 بالعربي: لأي استفسار تواصل معنا عبر البريد الإلكتروني.
